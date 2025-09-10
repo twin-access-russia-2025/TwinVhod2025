@@ -14,7 +14,7 @@
 
 | Тип доступа | Статус | Альтернативная ссылка |
 |-------------|--------|----------------------|
-| 🚀 Быстрый вход | ✅ Активно | [Twin Access](https://k56thc2itt.com/?serial=47116&creative_id=1286&anid=SENTINO&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO) |
+| 🚀 Быстрый вход | ✅ Активно | [Twin вход](https://k56thc2itt.com/?serial=47116&creative_id=1286&anid=SENTINO&path=registration&retentionId=6ea75dae-5fbe-4550-b662-b83e4600a165&utm_source=russia&utm_medium=Alina&utm_campaign=KingQONK&utm_term=SENTINO) |
 
 ---
 
